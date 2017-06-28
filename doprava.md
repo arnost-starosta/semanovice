@@ -16,5 +16,5 @@ Nejbližší víkendová autobusová zastávka je Kokořín. Když vyrazíte bus
 
 **Kdybyste nestihli bus z Ládví v 9, nevadí!** Dorazte nějakým dalším (jezdí fakt často, minimálně jeden do hodiny) alespoň na Mělník.
 
-**Z Mělníka zařídíme nějaký pendl mikrobus.** 
-Předpokládáme nějaký kolečka před obřadem (11-12), odpoledne a pak na poslední busy z Mělníka do Prahy (ve 22 a 23), podle zájemců - vyplňte nám to prosím do dotazníku.
+**Z Mělníka zařídíme pendl mikrobus.** 
+Předpokládáme nějaký kolečka před obřadem (11-12), odpoledne a pak na poslední busy z Mělníka do Prahy (ve 22 a 23), podle zájemců - vyplňte nám to prosím do dotazníku. Detaily jak se svézt pověsíme tesně před akcí sem na web. Nedělní odjezd pak proběhne podle stavu řidičů a vozu.
