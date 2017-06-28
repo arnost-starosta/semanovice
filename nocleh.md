@@ -9,4 +9,7 @@ Buď v zahradě přiléhající přímo k hospodě, nebo v klidnější zahradě
 
 V té blízké chalupě, klid a komfort spíš a la noclehárna (tedy pokud všichni neodjedou).
 
-Nebo rovnou v sále.
+nebo...
+### Rovnou v sále
+
+Jako za mlada.
