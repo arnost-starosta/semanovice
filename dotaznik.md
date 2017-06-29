@@ -6,9 +6,9 @@ Abysme navařili dost piva a objednali dost dlouhou pásku do magneťáku. A ně
 
 ### Co hlavně
 
-Dejte nám prosím vědět, jestli přijedete a jestli přespíte. Doporučené odpovědi jsou ano/ano.
+Dejte nám prosím vědět, jestli přijedete a jestli přespíte.
 
-Po odeslání Vám vyskočí odkaz, na kterém můžete svoje odpovědi kdykoli změnit. Někam si ho uložte, když se třeba rozmyslíte, seženete dopravu, kterou ste neměli, zase o ni přijdete...
+Po odeslání dotazníku Vám vyskočí odkaz, na kterém můžete svoje odpovědi kdykoli změnit. Někam si ho uložte, když se třeba rozmyslíte, seženete dopravu, kterou ste neměli, zase o ni přijdete...
 
 ### Úskalí
 
