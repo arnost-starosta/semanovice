@@ -8,16 +8,18 @@ Abysme navařili dost piva a objednali dost dlouhou pásku do magneťáku. A ně
 
 Dejte nám prosím vědět, jestli přijedete a jestli přespíte.
 
-Po odeslání dotazníku Vám vyskočí odkaz, na kterém můžete svoje odpovědi kdykoli změnit. Někam si ho uložte, když se třeba rozmyslíte, seženete dopravu, kterou ste neměli, zase o ni přijdete...
+Po odeslání dotazníku Vám vyskočí odkaz, na kterém můžete svoje odpovědi kdykoli změnit. Někam si ho uložte, když se třeba rozmyslíte, seženete dopravu, kterou jste neměli nebo o ni naopak přijdete...
+
+Jak odpovídají návštěvníci před Vámi se můžete podívat [tady](https://docs.google.com/forms/d/e/1FAIpQLSf4W7w-0sBj6qWSZ8eLIjT3RpnupLw4w_OXbzhY63VzMa-8vw/viewanalytics).
 
 ### Úskalí
 
-Všechno co tu napíšete bude veřejně dostupné (na kliknutí pro toho kdo zná link z tohohle webu, což může být nakonec i půl světa). Je to cena za to, že se nemusíte nijak přihlašovat, zakládat si účet atd.
+Všechno, co tu napíšete, bude veřejně dostupné (na kliknutí pro toho, kdo zná link). Je to cena za to, že se nemusíte nijak přihlašovat, zakládat si účet atd.
 
-Pokud tedy chcete vystupovat pod přezdívkou (doporučujeme zvíře) nebo na sebe nepsat žádný kontakt, úplně to chápeme.
+Pokud tedy chcete vystupovat pod přezdívkou nebo na sebe nepsat žádný kontakt, úplně to chápeme.
 
-Po akci sice všechna data smažeme, ale neumíme zaručit, že je mezitím nikdo nevítaný neuvidí.
+Po akci sice všechna data smažeme, ale neumíme zaručit, že je mezitím nikdo nevítaný neuvidí. Berte to jakoby jste si podali inzerát do novin, který většinou skoro nikdo nečte.
 
-### Tak prosím už vyplňujte (TODO vyměnit link .)
+### Tak prosím už vyplňujte
 
-[ZDE](http://)
+[ZDE](https://docs.google.com/forms/d/e/1FAIpQLSf4W7w-0sBj6qWSZ8eLIjT3RpnupLw4w_OXbzhY63VzMa-8vw/viewform?usp=sf_link)
