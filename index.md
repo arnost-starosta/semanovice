@@ -1,4 +1,9 @@
 ### UPDATE - Obřad bude v sobotu 29.7., opravdu ve 13 hodin!
+A zaparkovat můžete buď u bytovky, pod lípou, nebo někde po vesnici u krajnice (buďte prosím slušní, jsme tu všichni hosti .)
+
+![Image of Yaktocat](parkovani-sema.png)
+
+-------------------
 
 Zuzu a Arnošt se budou brát a vy jste nejvíc zvaný! Bude to asi strašně boží svatba, protože jí chystáme už víc než osum let .-) 
 
