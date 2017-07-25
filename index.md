@@ -1,4 +1,7 @@
 ### UPDATE - Obřad bude v sobotu 29.7., opravdu ve 13 hodin!
+
+[mapa](https://mapy.cz/s/1Ml5f)
+
 A zaparkovat můžete buď u bytovky, pod lípou, nebo někde po vesnici u krajnice (buďte prosím slušní, jsme tu všichni hosti .)
 
 ![Image of Yaktocat](parkovani-sema.png)
