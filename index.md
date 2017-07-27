@@ -2,6 +2,14 @@
 
 [mapa](https://mapy.cz/s/1Ml5f)
 
+### Kontakty
+#### Doprava
+Volejte Adélu 724 059 177, kdybyste zabloudili, uvízli, neuměli sami zaparkovat.
+#### Ostatní
+Volejte Ditu 602 753 963, kdybyste si nevěděli rady.
+
+Zuska ani Arnošt asi na telefonu moc nebudou.
+
 A zaparkovat můžete buď u bytovky, pod lípou, nebo někde po vesnici u krajnice (buďte prosím slušní, jsme tu všichni hosti .)
 
 ![Image of Yaktocat](parkovani-sema.png)
