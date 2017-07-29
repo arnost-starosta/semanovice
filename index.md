@@ -1,4 +1,8 @@
-### UPDATE - Obřad bude v sobotu 29.7., opravdu ve 13 hodin!
+### Dopravní update
+
+na Mělníku je špatně průjezdnej Novej most, jeďte z dálnice drobnou objížďkou přes Hořín. Těšíme se!
+
+## UPDATE - Obřad bude v sobotu 29.7., opravdu ve 13 hodin!
 
 [mapa](https://mapy.cz/s/1Ml5f)
 
